@@ -1,0 +1,2 @@
+# legendarasibintang
+Blog Pribadi
